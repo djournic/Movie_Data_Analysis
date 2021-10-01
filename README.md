@@ -18,4 +18,5 @@
   As you might as picked up already, I started this whole thing with a predetermined conclusion. Now I know that's not the best way to go about doing things, but because I acknowledeged that it won't be a problem. Plus, this was a lot more fun.
   
 ## Future considerations
- One of the things I ran across was the concept of studios making similar movies; Armageddon vs Deep Impact, Olympus has Fallen vs White House Down, Sharknado vs Orcacane (I bet for a second, just a second, you thought there WAS a movie called Orcacane....just give it time), and I thought it'd be interesting to see what factors went into which one succeeded. 
+ One of the things I ran across was the concept of studios making similar movies; Armageddon vs Deep Impact, Olympus has Fallen vs White House Down, Sharknado vs Orcacane (I bet for a second, just a second, you thought there WAS a movie called Orcacane....just give it time), and I thought it'd be interesting to see what factors went into which one succeeded.
+ ![Alt Text](http://mrwgifs.com/wp-content/uploads/2013/03/Shut-Up-And-Take-My-Money-Gif.gif)
