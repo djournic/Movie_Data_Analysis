@@ -19,4 +19,5 @@
   
 ## Future considerations
  One of the things I ran across was the concept of studios making similar movies; Armageddon vs Deep Impact, Olympus has Fallen vs White House Down, Sharknado vs Orcacane (I bet for a second, just a second, you thought there WAS a movie called Orcacane....just give it time), and I thought it'd be interesting to see what factors went into which one succeeded.
+ 
  ![Alt Text](http://mrwgifs.com/wp-content/uploads/2013/03/Shut-Up-And-Take-My-Money-Gif.gif)
